@@ -1,0 +1,1 @@
+boil water and add maggi then add masala and wait for 2 minS
